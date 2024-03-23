@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mindsetplayer12
 - 👀 I’m interested in coding and many more
 - 🌱 I’m currently learning all language 
-- 💞️ I’m looking to collaborate on WhatsApp bot creatio
+- 🤖 I’m looking to collaborate on WhatsApp bot creation
 - 📫 How to reach me on WhatsApp wa.me/+254740488182
   ⚡ Fun fact:  Nothing is funny but let's just laugh😂
  
